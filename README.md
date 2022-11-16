@@ -1,2 +1,0 @@
-# ProgramaYa.github.io
-ProgramaYa
